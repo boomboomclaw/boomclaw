@@ -4,7 +4,7 @@
 
 ---
 
-![火爆龙虾游戏截图](https://github.com/user-attachments/assets/d0e2b5a0-9f85-4d94-b9d2-523f874aaf60)
+![8270f521850c77b35f761ef42e1a1293](https://github.com/user-attachments/assets/316858cd-e9dc-4928-a4a8-a93691ea85e3)
 
 > 🌊 **欢迎来到钳爪海** — 这里没有救世主，只有靠自己打拼的龙虾们
 
